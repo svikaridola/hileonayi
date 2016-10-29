@@ -1,2 +1,1 @@
-# hileonayi
-ananınki
+açık
